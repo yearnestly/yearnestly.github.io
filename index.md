@@ -8,7 +8,7 @@ Now, as ever, we need to sit at His feet - patient, expectant, pen in hand, read
 
 - I am a follower of Jesus.
 - I am not a "professional" pastor, scholar or theologian.
-- Comments will remain off. The point is not for us to dialogue with each other, but with Jesus.
+- Comments will remain off. That way lies madness.
 - If anyone contacts you asking for money, it is not me and not related to this blog.
 - That said, Microsoft owns Github now, and I cannot control if or which ads pop up.
 - Thoughts, opinions, and beliefs expressed are my own and obviously do not reflect those of my employer, or any other person or organization I am or have ever been affiliated with.
